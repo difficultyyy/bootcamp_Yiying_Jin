@@ -1,1 +1,1 @@
-# bootcamp_-Yiying-_-Jin-
+# bootcamp_Yiying_Jin
